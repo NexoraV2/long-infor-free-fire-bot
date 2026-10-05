@@ -1,1 +1,0 @@
-# long-infor-free-fire-bot
